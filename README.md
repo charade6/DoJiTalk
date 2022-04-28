@@ -1,19 +1,19 @@
 # DoJiTalk
 
-![1](https://postfiles.pstatic.net/MjAyMjA0MjhfMTY3/MDAxNjUxMDc3MzU1MDQ2.zj9UBU7MV-QN6Mg6MbT6UhJLE3B-pkQpbeC1fysICrAg.14q4xbKDQtCaJnG2Www4kJLieivLujVzgBNO36DeTCQg.PNG.charade6/%ED%99%94%EB%A9%B4_%EC%BA%A1%EC%B2%98_2022-04-27_201317.png?type=w773)
+![1](https://postfiles.pstatic.net/MjAyMjA0MjhfMTEy/MDAxNjUxMTA2NDI2Mjgy.JMSdeylgj7edpLemBzhHpuQEjvrL-FQ6Wgj8IlaerAMg.rGiYJM2GnqVqBfxzwrQhuZ4s-eATVRhs6Vbk79lkZMwg.PNG.charade6/%ED%99%94%EB%A9%B4_%EC%BA%A1%EC%B2%98_2022-04-27_210711.png?type=w773)
 
 <br />
 
-![2](https://postfiles.pstatic.net/MjAyMjA0MjhfMjYg/MDAxNjUxMDc3MzU0OTI2._JirO_63zVJHLM0bV-87EGf7lqb0ASFG2bJ2ZccOSmAg.MNLP6dmCiNz-Uhi8cjUC8nXjwXvGrwjg7a8QiPlcyr0g.PNG.charade6/%ED%99%94%EB%A9%B4_%EC%BA%A1%EC%B2%98_2022-04-27_201328.png?type=w773)
+![2](https://postfiles.pstatic.net/MjAyMjA0MjhfMjE1/MDAxNjUxMTA2NDI2Mjkw.OdqzNJxYqgqObECh4peLaI04ELN6McY-VY29BMrY4wsg.U3hMtRPwzOI2Z2wuY0-6DwE0HOaEsrMFnRQJ-mdlGg8g.PNG.charade6/%ED%99%94%EB%A9%B4_%EC%BA%A1%EC%B2%98_2022-04-27_210608.png?type=w773)
 
 <br />
 
-![3](https://postfiles.pstatic.net/MjAyMjA0MjhfMTkw/MDAxNjUxMDc3MzU0OTQ1.7FDt_a0B4tg30Ey4ew1018k29KNgtd97NeEZbM1ZT3Ig.b9Dm_d3ut0Q6a1Oi5SXDUf5fk9gAVmCDxFG-pYWxTZUg.PNG.charade6/%ED%99%94%EB%A9%B4_%EC%BA%A1%EC%B2%98_2022-04-27_201355.png?type=w773)
+![3](https://postfiles.pstatic.net/MjAyMjA0MjhfMjIg/MDAxNjUxMTA2NDI2Mjgx.z7nEjZ9c749oANejtjxTZrlaQ4Efn6uhzcfBg91tW-Mg.WIUJr2QHtVah8oee4-jyyB4-GR8LJ2gSqJiGJZJJ8kwg.PNG.charade6/%ED%99%94%EB%A9%B4_%EC%BA%A1%EC%B2%98_2022-04-27_210258.png?type=w773)
 
 <br />
 
-![4](https://postfiles.pstatic.net/MjAyMjA0MjhfMTI2/MDAxNjUxMDc3MzU0OTY3.1lXxzhe-XufX2hfE9xSOZ-e5UQRm15zMefNIUp7wfbYg.MdnqEfL3G4HBHu4bdzDnmm4z8P4TvXM1HVnNZZrg8MIg.PNG.charade6/%ED%99%94%EB%A9%B4_%EC%BA%A1%EC%B2%98_2022-04-27_201415.png?type=w773)
+![4](https://postfiles.pstatic.net/MjAyMjA0MjhfMjQg/MDAxNjUxMTA2NDI2Mjc5.M_N3HSv85CPK6dWH83qdbLFiCOLe94C6a9m_ercbBIYg.8vh9weaMHm-giMCj5NdpK6GN2cBxno8Dg8oJiqxww1kg.PNG.charade6/%ED%99%94%EB%A9%B4_%EC%BA%A1%EC%B2%98_2022-04-27_210540.png?type=w773)
 
 <br />
 
-![5](https://postfiles.pstatic.net/MjAyMjA0MjhfODcg/MDAxNjUxMDc3MzU0ODY0.X1BH5tF_1Ekg1dFAMqj9bwFoSs9gJLz6cNFHAmnNzAog.NkfO18s3NEYMaSPwegNEFyr8-B21eezVwbAORNLbIoMg.PNG.charade6/%ED%99%94%EB%A9%B4_%EC%BA%A1%EC%B2%98_2022-04-27_201245.png?type=w773)
+![5](https://postfiles.pstatic.net/MjAyMjA0MjhfMTQw/MDAxNjUxMTA2NDI2Mjc4.Tx5M5icHyT-JwDzM5aw01mrpDy4zX_f6_cLPpVXM-KUg.sOpsEUOZsPIiX04Id83vyuThGugGBhvGVDDl67L1MX8g.PNG.charade6/%ED%99%94%EB%A9%B4_%EC%BA%A1%EC%B2%98_2022-04-27_210733.png?type=w773)
